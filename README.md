@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @deku | my discord is dek_u#7460
+- 👋 Hi, I’m @deku | my discord is deku duck#7460
 - 👀 I’m interested in minecraft hacking
 - 🌱 I’m currently learning nothing
 - ur mom
